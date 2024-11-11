@@ -1,1 +1,0 @@
-# CulturaArtistica_BriseydaArbizu
